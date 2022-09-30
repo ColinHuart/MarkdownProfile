@@ -27,11 +27,11 @@ Pinneapple on pizza: yes, of course
 
 
 
-You can always count on me when you ask for help, I'll always try my best. And in a group, I tend to be more like a mediator. I prefer that everyone is pleased than having a conflict.
+You can always count on me when you ask for help, I'll always try   my best. And in a group, I tend to be more like a mediator. I   prefer that everyone is pleased than having a conflict.  
 
 
 #### The day when I lost my pen for 30min and it was in my hand
-Yeah happens and many times, I'm kinda heads in the clouds. Sometimes I throw the biscuit in the thrash and keep the packaging in my hand...
+Yeah happens and many times, I'm kinda heads in the clouds.    Sometimes I throw the biscuit in the thrash and keep the packaging in my hand...
 ##### I'm forgetfull
 
 
