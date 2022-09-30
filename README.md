@@ -8,10 +8,10 @@
 ### I love music and birds 
 ---------------------------------------------
 
-Birthday: 25/10/1997
-Favorite color: blue
-Favorite food : chinese food( and fries but not at the same time ofc)
-Pinneapple on pizza: yes, of course
+Birthday: 25/10/1997  
+Favorite color: blue  
+Favorite food : chinese food( and fries but not at the same time   ofc)  
+Pinneapple on pizza: yes, of course  
 
 ---------------------------------------------
 
